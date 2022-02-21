@@ -8,4 +8,4 @@ Addon (version at the start of Season 2 | requires holiday creature featurs to b
 coming soon
 
 World (Season 1)
-Coming soon
+coming soon
