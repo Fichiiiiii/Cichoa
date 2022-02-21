@@ -1,4 +1,4 @@
-# Cichoa
+# Cichoa Downloads
 The downloads of Chichoa Stuff like addons or worlds
 
 Addon (last updated stable version)
