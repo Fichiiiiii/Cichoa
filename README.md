@@ -8,4 +8,4 @@ Addon (version at the start of Season 2 | requires holiday creature features to 
 coming soon
 
 World (Season 1)
-coming soon
+https://mega.nz/folder/Qc91haJS#dg2vT43dn-WEkF1jIC41Zw
