@@ -11,4 +11,4 @@ World (Season 1)
 https://mega.nz/folder/Qc91haJS#dg2vT43dn-WEkF1jIC41Zw
 
 World (Season 2)
-?
+https://mega.nz/folder/hBki1KhT#fTKKtdy1-ybQMPB0mpgI4w
